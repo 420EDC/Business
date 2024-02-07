@@ -19,7 +19,7 @@ Our Focus is _Battery Powered_ Portable Herbal Vaporizers, [Stainless Steel Grin
 
 - [XLux Roffu from XVape](https://www.420edc.com/search.php?search_query=Roffu&section=product)
 - [XMax V3 Nano](https://www.420edc.com/topgreen/xmax/xmax-v3-nano/)
-- [XMax Starry 4](https://www.420edc.com/topgreen/xmax/xmax-starry-4/
+- [XMax Starry 4](https://www.420edc.com/topgreen/xmax/xmax-starry-4/)
 - [XMax V3 Pro](https://www.420edc.com/xmax/)
   
 
